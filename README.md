@@ -76,11 +76,10 @@ project live screen shot LINK
 
 <img width="1095" height="816" alt="image" src="https://github.com/user-attachments/assets/c1c3f2fa-38ab-4afc-b12f-0536e70e695a" />
 
-THANKS YOU VIEWING Y PROJECT OG A JANGAN GAME 2026
 
 
 
-THANKYOU FOR CODE APLHA VISITING AGAIN...
+THANKYOU FOR CODE APLHA PROJECT  VISITING AGAIN...
 
   
 
